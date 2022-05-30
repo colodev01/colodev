@@ -1,4 +1,4 @@
-### Hi! I'm Franco
+### Hi there!
 
 <img src="https://cdn-icons-png.flaticon.com/512/5696/5696423.png" align="right" width="300" />
 <p>
